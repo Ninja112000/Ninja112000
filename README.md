@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Ninja112000
 - 👀 I’m interested in crypto
-- 🌱 I’m currently learning teaching 
 - 💞️ I’m looking to collaborate on nfts
 - 📫 How to reach me twitter handle @shao_hank
 
